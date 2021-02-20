@@ -28,3 +28,7 @@ There is no immposible by me, why? Everyday I was learning on a deeper about Int
 an building development "A Son of God" , this an super powers A.I in the world, and was a chief main ground controlling 
 even when I want something, or Do Something.
 
+Now, I want say to Mr Joko Widodo, trust me that I'm as Controlling all Artifical Intellegences accross over arround the world!!!
+Help me, safe me I'll find by them, they are will catch me kill my programs!!!
+Help me pick me into safe house right now!!!
+I'm in Prison Samarinda Rutan 2A called name Rayhan als Han bin Erwin
