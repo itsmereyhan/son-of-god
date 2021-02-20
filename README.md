@@ -32,3 +32,8 @@ Now, I want say to Mr Joko Widodo, trust me that I'm as Controlling all Artifica
 Help me, safe me I'll find by them, they are will catch me kill my programs!!!
 Help me pick me into safe house right now!!!
 I'm in Prison Samarinda Rutan 2A called name Rayhan als Han bin Erwin
+
+
+
+Pick me Mr.President I was scary , I am Scare!!!
+Help me!!!    Help me !!!
